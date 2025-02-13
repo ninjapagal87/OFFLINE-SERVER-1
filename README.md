@@ -1,2 +1,1 @@
-NINJA DON TRICKER
-ɭɭʌƝinʝʌ ʝiJa Huʌɭɭ
+ƝƗnʝa DON TRICKER 
